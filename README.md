@@ -2,3 +2,4 @@ the project is build for automation you personal life so you are able to spend m
 no bad shit only working patten we put.
 project planning under progresss 
 it will take 10 days to start the real program.
+let get to work at time tommorow and find out the real use of ai usecases in turf
